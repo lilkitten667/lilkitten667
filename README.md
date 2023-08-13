@@ -59,8 +59,8 @@ demons.*
 
 
  😄 Pronouns: *note this is a very serious issue, however I choose to be funny*
-                  **From this day on, i am not fat nor woman i am a unic. teddy bear**
-                     **My pronouns are squishy and mine** **yes you can be a teddy bear too**
+                  **From this day on***,  *I am not fat!! nor woman!!* **I am a unic. teddy bear**
+                     **My pronouns** are *squishy* and **mine** **yes you too can be a teddy bear!!**
 
  ⚡ Fun fact: **looks around** *"hey did he mean us, our line right??"* ***Cue Koolid ND Man** *"OH NOOO"* ***grabs tape**
               are you sure???? you realize.... *"sshhhhhhh"* **OOOOOOFFFFF*** we told you what was going to happen!!
